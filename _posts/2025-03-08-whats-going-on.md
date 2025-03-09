@@ -17,7 +17,7 @@ I'm trying my best to take a little social media break first of all. I'm still h
 
 I'm also trying to play catch up with some art, commissions, and a few special art projects. I might talk more about that stuff here soon, idk yet. I really want to.
 
-I'm also working on my game(s). I have a lot of projects and now on top of the game I've been wanting to make for the last half decad, I'm working on three games currently. I might add a special project in for all this. I'll talk more about that soon.
+I'm also working on my game(s). I have a lot of projects and now on top of the game I've been wanting to make for the last half decade, I'm working on three games currently. I might add a special project in for all this. I'll talk more about that soon.
 
 Soon all my websites will go down. I can't pay my hosting bill. I pay yearly and its $400$ I'm already passed the due date. I'm also almost two months behind on my phone bill of $55$ and a month pass my internet bill of $185$. I'm not trying to ask for help, I know there's a lot of struggling folks out there. I'm just venting. It sucks I haven't found a job over here.
 
