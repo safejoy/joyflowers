@@ -3,7 +3,7 @@ layout: post
 title: "Hi Hello Again."
 author: "Joy Flowers"
 categories: docs
-tags: [docs,joy]
+tags: [joy]
 image: 394690_145.jpg
 ---
 
